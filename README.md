@@ -1,3 +1,10 @@
+[this is important](https://www.youtube.com/watch?v=xMHJGd3wwZk&t)
 
-# YOU JUST WON $300000000000000000000000000000000000000000
-###### the code is 78753 in github JK hahhahah
+
+
+> This is a chating room
+> we can chat during school!!! yay
+
+Quote break.
+
+> to start you must enter some data
